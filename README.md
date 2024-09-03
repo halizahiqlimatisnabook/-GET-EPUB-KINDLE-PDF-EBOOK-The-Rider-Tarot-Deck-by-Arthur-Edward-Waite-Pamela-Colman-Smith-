@@ -1,0 +1,1 @@
+# -GET-EPUB-KINDLE-PDF-EBOOK-The-Rider-Tarot-Deck-by-Arthur-Edward-Waite-Pamela-Colman-Smith-
